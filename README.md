@@ -8,7 +8,7 @@
 - 📝 I regularly write articles on [https://medium.com/@burakgokkce](https://medium.com/@burakgokkce)
 
 - 💬 Ask me about **IOS Development**
-
+A
 - 📫 How to reach me **burakgokkce@gmail.com**
 
 - ⚡️ Fun fact check **my instagram you are gonna see that how fun I am**
